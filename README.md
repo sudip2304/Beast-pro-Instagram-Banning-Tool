@@ -4,7 +4,7 @@
 
 ![tool pic](https://files.catbox.moe/xrh9il.jpg)
 
-# tool video https://telegram.me/infinitymoney1/518
+# tool video bit.ly/3rphE7a
 
 # Features and service via tool
 
