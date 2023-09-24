@@ -60,3 +60,15 @@ Certainly, if your service offers engagement features across various social medi
 - **Pinterest Followers:** Grow your Pinterest followers base.
 - **Pinterest Repins:** Encourage the sharing of your pins to reach a wider audience.
 
+# PRICE LIST
+
+**1. Monthly Subscription:** $120 per month
+   
+
+**2. Annual Subscription:** $3,500 per year
+   
+
+**3. Lifetime Subscription:** $1,000 (one-time payment)
+
+
+   # CONTECT - https://TELEGRAM.ME/DEVELOPER_009
