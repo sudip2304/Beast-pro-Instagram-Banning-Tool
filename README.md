@@ -65,7 +65,7 @@ Certainly, if your service offers engagement features across various social medi
 **1. Monthly Subscription:** $120 per month
    
 
-**2. Annual Subscription:** $3,500 per year
+**2. Annual Subscription:** $350 per year
    
 
 **3. Lifetime Subscription:** $1,000 (one-time payment)
